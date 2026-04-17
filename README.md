@@ -1,5 +1,5 @@
 # my yumeships + my kins
-please ask if:
+idc abt sharing 
 yumeships:
 
 1• dozer-grace 
