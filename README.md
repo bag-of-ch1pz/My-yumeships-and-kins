@@ -1,10 +1,25 @@
-# Please-ask-first
+# my yumeships + my kins
 please ask if:
+yumeships:
 
-you want to c+h
+1• dozer-grace 
 
-if you want to match
+2• v1-ultrakill
 
-if you want to ship with me/my ocs
+3• mime-grace
 
-if you want to add me
+4• folly-regretevator
+
+kins:
+
+1• mequot-dod
+
+2• scag and gnarpy-regretevator
+
+3• soldier-tf2
+
+4• squirm-dandys world
+
+5• mirage-ultrakill
+
+more tba
