@@ -11,9 +11,11 @@ yumeships:
 
 4• folly-regretevator
 
+5• caine-tadc
+
 kins:
 
-1• mequot-dod
+1• mequot and caretaker-dod
 
 2• scag and gnarpy-regretevator
 
