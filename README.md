@@ -25,4 +25,8 @@ kins:
 
 5• mirage-ultrakill
 
+6-HVYKIN avery the mayo
+
+7-HVYKIN bassie bloomington
+
 more tba
